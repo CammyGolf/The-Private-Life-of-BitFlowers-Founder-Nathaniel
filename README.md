@@ -1,5 +1,5 @@
 # The-Private-Life-of-BitFlowers-Founder-Nathaniel
-☯️ Snippets from a Half lived Life!
+☯️ Snippets from a Half lived Life! With the Best of Intentions!
 
 ## [Zen Tour](https://www.youtube.com/watch?v=OUQcflwy55U)
 ### Remix:
